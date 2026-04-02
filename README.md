@@ -1,0 +1,2 @@
+# AstroFrekans
+Astrofrekans Gizlilik Politikası
